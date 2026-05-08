@@ -1,4 +1,4 @@
-
+Sketch for macOS ultimate Script: color correction & real-time preview is the best Sketch for macOS script, featuring color correction and real-time preview. Safe, efficient, and
 
 
 
